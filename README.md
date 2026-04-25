@@ -1,46 +1,208 @@
-PK    *”\b`_ผ  ,&     code.txtีZyo๋DJKธ(i)w€ViB MJ“ถ@[%NผIL;๘h•H\โr#q
-!ธIฟMฤ'แ7ป>ึiย๙ ๑๔ฝณs๎์ฬ์xo`“๑;“๑๗“๑ว“๑w“๑g“๑๓“๑“๑ซ“๑โแหษ๘ฅษ๘k]พมล…ษ๘
-yw2q.๖ๅ“๑{๓hL.๑๚ษไL\พ&@ฏL._ฟ?๐๘
-ส(~ฆ๙—ฯq่€;(ผผธpG–	 ฐมyฅูrฑ4๑ @๒Aืล๋๛คQbr๙
-^30๕[โKึจCๅoฆ[Sฅ!,€$iฃ-.ฌ’๐!!…rฐFมsLvซvถ฿R๖น๕€N์1•%ไg56]SHG฿-.ฉ2คUV๔GbK๔฿‘๚ฒFฃ`[ฎm๒ฦ4c•ถ ๑—ฤ ดa0"ษAcabจ;
-%๒zภ+ค์๐กะe(iฺึื\ฯฐ:$QXHุVิๅ๘ง
-WAW0[\xP็f๎]ฟืำแฺ/o’Z€/hรแ็@ฐตTฏ+๒เrHfqaqกัh<ํ..่ไgราํA๖ฦ ๐ฮ=o8=ฤผูืZง…ฎo๊ฒฝฎ๕๛ูพ๏vำGGีaฏi้ฬษป-1=ดฦ“อEด๛iKV๙~฿4ZgุVีsธึแช-XWO๓–—=ำLป้Hจl+“mCเ๔91;_ฯ๒๓พํx๎z6ฟญื๛ํู๕๚zถร=I’;๙–gq๙ถป๊งeBผl>P{ฯท,ฐ]ก`ฌrFร€ำใ ๆนษดU…
-]อฒธyํ๘ไMณึ…uwหvv5[3ธ>์ฆทYK;Vท7y[๓M/ 8ร[ฆพiธ}อku9๐ฯ3๋&๔lpํCอ ซ๚<fุ
-๘i}ใฏ0ูฐ…F1ฝ
-[์ย—ว\ฟOฃ\ฏi๎ฉ
-๚Gฉร|ญ๐H ดYฌค–Xjw;dฝRฎoซี*ป4Tญํ๓;Sb^พP+”jOา€Bฆ๎T6JลิTๆแฤ/อ*n•€Pฟฬ	ด2=๎ze}—;UO๓|hฦ-ว6Mฎ็=v๓อ์๚$ฐe๗๚cจล lS๓x๚ซmtศฐe`ัใ้[“ฒ–=ภ
-ะ’ๆ‘’$ม2๒กiz…ด€Gถพiฏฌfฤ6งaตL_รL&#bธKฐ7์sปอเ\ฝสRg]ะC,ๅ[:\O-.ํt`,“[ฏหย•ปX\ธน)kฺt๊IgบmโฑฎB5dพู'X๋Sbฤธ้rAไัํGํ&ไic:EJุ@zฐ€B๘JPศuฝห0{พc‘ท…H}C สๆuแ๏ถํคลฃฃ!๔@Vv็
-dะ๏ภ/แลธโaฬ.ม$ดฑฬ๚Lค2ขโoกY€Oฉ7
-กีี:•ฎJ3b$ลฆฐ’ฎ1 tฐ$ฐๅ…b?ฤาซฮOเ'ฬ๒MS,Eฐว9~uทฬนๅ{Mc…ฌN๐๎`3*ญ€ธi[ฑิ=ะีมยSLb]n]Rห๘Cฌ
-9ฑ`ุณฯ*NA•ฐx^ QO;฿๒แZ$ึ+KฬํC7<฿ปฤ
-ั"DมPb์i•”ขDA์๏์	
-;%ด-i๎ะj1x1Vๆ ฝnะ5L๖๔@ E
-$6{ ่)["ญฤ ษ3หด'hoD๚'่้Fป
-J
-ูี%Lฬ๕ ๋i=
-7๊2฿&mฬลา	ขkDรฑฌ>)>@ึข เz้
-฿1sฌฑ,ร๒าฬ>Z>3tn฿๚Mc5m}c‘89i”c้.)฿&็A#3ษ%Rล+Y"งบๆ…#DHบ๘๏๒฿ุNฑxd,]1Z5ฬ้	i<rษ]ว๎.OCpD นา m฿
-GฟUฤHJ
-=พ‘ย1๋kบD	๕"๋ $Rศ์๑พI&ฬ์,ืFv๖k฿จ๖mแฎรTฌm;,•ฦ(8AฺบhฆK—ะd#‘k#๛$ฎu
-—Y63mซยn`;จ5{€P!คฐl๋v)Sุ>$๐บปPdmิ~ู๊}J@ฬณ#ะTG‘(”ฤsh%ำฒaมข๕Rา•ป๗xYWฦ๊๎>tใE"Q#ิ]n‘ ะ”pฃ)๛ๅh52๓ sQ:๑–๏iM“#๔+Ugึ2<ฮuwฎฆ2๋"ฅฎg7ตOงึRK)ฌrCH&D๐ๅฃใๅใใญ๋ฉ ื=Y๎ภ6กร;MิึN9q Sz๚6*#Xฉ;>ฦ^๊8Zm!๘บววย&ร
-jK!…`D}฿E@ ลVnYlD9สiร$๐์mฤ[ง a๗fF€^%5t[97ขQรึP\แpข็’O!๑@จฎrTbฉR…#<ฤรยๆ&็PยNwผR
-0l…๑_3ลa+1}>๛{z
-ล! |Iz $๒ ๘ฬ"A ::–6็'่ฟวtdฆ๔๘
-ฤ๛4–"ุCขBฦ&ขYษไI3#ำtPศฑิ~น\*?\8ฟSฌึ
-ไหcณฯ8<"Zฅ%ฆม
-1|uB๎Heำเ'ชoจ{ก	ลtฝ+ธใย{…BwฐuABญท\ั4ช2ฏฐ ีะ4Jศ0;eฉTJ‘i(ฤฬ!ฯดY“้LฆEJ‘–ฟ‘XๆS่ฑ~=แiW?Bปฅ๚O่Rฑ+ฤู4+฿rฆr&๒มใ๛ลjญZฏห๕G๙ฝฺF1_ซW๗
-…bต
-~mkีิฺย€N๑๛K”’,EPXm฿RVOไZY’0jแ•pใ7ฬtฒขLๆถฬ๎YษXV(?}1!๔รภ”Bฝy…ฮีฬฏิก`Bป…|฿ ฝชค๖—ัฃธ7๖Lฌ$ZNั)?ง/ย]+83ทa๔๏$้฿ฃกXA4;๋z[H๋Eช๐7ง๐\ uu7'C”๔yAJC๔ๅGฺ๕gญkท
-นว{ผืD@๑บ8C>xAฯ&วW+8ต`แฐ>~กsx@”9kEใทb`ฒ์ตd_t
-ี/ยIDgmื1ฮP๋@ิช8ญใ<Lg•dหสgเ… bขถจ—|=จ๒aทv
-ฝZ9Vู@ย u6๎ฤ"=ฦัqฦ๙r7^Dชrw4ฤ\๑฿์&ิ•(ศอDgjhฆ๔ํแ๛ngยๆwทlkจหqโhrอ[R:์่9ถ@7;p6
-ฤ‘)nHฦJ(Z@ษข1๔นคื:ะ้ฮ๊สT+็OฬึฦดถJmF
-+๘แlพCo๔/|3ฆN๒ห๑ง้ลบง
-ธi!๏@เ๛๓๛ส๕่“}tฏ“ลเมsฎฬ๘ฺ./tผโใช Hฟ&/Vฤ๗ๆ\์๛%~ึ
-ฉ๛๊ตCDลุ}ใ7!๔Sบปi9(ึฆo+ Vค–bpูVมW|qฅ$ธ๑0สG้
-๒`dชi:ษฟyd๖-ภด๋๒าลด๕คap
-E๑ภ0๘o]_ภึc,Uชึw๒O”vJO7Srฃ  ฅr;€pบfh>ภW์|ซ…{ศหษytเฺซ์W๋ลr~cปฺ์ VฉlWQงm?–ถ๊OV๖๋•+๕รGP&เms+8บ%ช์หTแUk((๖w“ผZ]
-S~ฏ:0จqล•
-:,•7A{ฃฒ_ฌา8bฯท฿'ๆเmxบืลศ๗฿yO8ึๅFง๋ัเส๗ำX@#_x์aจZงPูฎ์aF๊ีึช๎กก๙บaWQ
-]๗๏ถAต<อ&ูmิธื{๘ฌๅแs	้k}๕ปvถ&Rน#ฬO9๓€8%ซ๏{F—,$ฆY๓ขะฏPK?    *”\b`_ผ  ,&   $        €ฐ    code.txt
-         ิ“จBะิ“จBะิ“จBะPK      Z   โ    
+# ทำภารกิจดิสคอร์ด
+วิธีทำภารกิจในดิสคอร์ดไม่ต้องโหลดโปรแกรมหรือเกมต่างๆ
+1. เปิดโปรแกรมดิสคอร์ด (ห้ามใช้บนเว็บ) หลังจากนั้นให้เปิดหน้าภารกิจ
+2. ให้ปุ่ม `Ctrl + Shift + I` แล้วมันจะเปิด DevTools ขึ้นมา
+3. ให้ไปที่แท็บ ``Console`` แล้ววางโค้ดลงไปหากใครวางโค้ดไม่ได้ให้พิมพ์ ``allow pasting`` ก่อนแล้วค่อยวางใหม่
+<details>
+<summary>▶ คลิกเพื่อคัดลอกโค้ด</summary>
+
+```js
+delete window.$;
+let wpRequire = webpackChunkdiscord_app.push([[Symbol()], {}, r => r]);
+webpackChunkdiscord_app.pop();
+
+let ApplicationStreamingStore = Object.values(wpRequire.c).find(x => x?.exports?.A?.__proto__?.getStreamerActiveStreamMetadata).exports.A;
+let RunningGameStore = Object.values(wpRequire.c).find(x => x?.exports?.Ay?.getRunningGames).exports.Ay;
+let QuestsStore = Object.values(wpRequire.c).find(x => x?.exports?.A?.__proto__?.getQuest).exports.A;
+let ChannelStore = Object.values(wpRequire.c).find(x => x?.exports?.A?.__proto__?.getAllThreadsForParent).exports.A;
+let GuildChannelStore = Object.values(wpRequire.c).find(x => x?.exports?.Ay?.getSFWDefaultChannel).exports.Ay;
+let FluxDispatcher = Object.values(wpRequire.c).find(x => x?.exports?.h?.__proto__?.flushWaitQueue).exports.h;
+let api = Object.values(wpRequire.c).find(x => x?.exports?.Bo?.get).exports.Bo;
+
+const supportedTasks = ["WATCH_VIDEO", "PLAY_ON_DESKTOP", "STREAM_ON_DESKTOP", "PLAY_ACTIVITY", "WATCH_VIDEO_ON_MOBILE"]
+let quests = [...QuestsStore.quests.values()].filter(x => x.userStatus?.enrolledAt && !x.userStatus?.completedAt && new Date(x.config.expiresAt).getTime() > Date.now() && supportedTasks.find(y => Object.keys((x.config.taskConfig ?? x.config.taskConfigV2).tasks).includes(y)))
+let isApp = typeof DiscordNative !== "undefined"
+if(quests.length === 0) {
+	console.log("You don't have any uncompleted quests!")
+} else {
+	let doJob = function() {
+		const quest = quests.pop()
+		if(!quest) return
+
+		const pid = Math.floor(Math.random() * 30000) + 1000
+		
+		const applicationId = quest.config.application.id
+		const applicationName = quest.config.application.name
+		const questName = quest.config.messages.questName
+		const taskConfig = quest.config.taskConfig ?? quest.config.taskConfigV2
+		const taskName = supportedTasks.find(x => taskConfig.tasks[x] != null)
+		const secondsNeeded = taskConfig.tasks[taskName].target
+		let secondsDone = quest.userStatus?.progress?.[taskName]?.value ?? 0
+
+		if(taskName === "WATCH_VIDEO" || taskName === "WATCH_VIDEO_ON_MOBILE") {
+			const maxFuture = 10, speed = 7, interval = 1
+			const enrolledAt = new Date(quest.userStatus.enrolledAt).getTime()
+			let completed = false
+			let fn = async () => {			
+				while(true) {
+					const maxAllowed = Math.floor((Date.now() - enrolledAt)/1000) + maxFuture
+					const diff = maxAllowed - secondsDone
+					const timestamp = secondsDone + speed
+					if(diff >= speed) {
+						const res = await api.post({url: `/quests/${quest.id}/video-progress`, body: {timestamp: Math.min(secondsNeeded, timestamp + Math.random())}})
+						completed = res.body.completed_at != null
+						secondsDone = Math.min(secondsNeeded, timestamp)
+					}
+					
+					if(timestamp >= secondsNeeded) {
+						break
+					}
+					await new Promise(resolve => setTimeout(resolve, interval * 1000))
+				}
+				if(!completed) {
+					await api.post({url: `/quests/${quest.id}/video-progress`, body: {timestamp: secondsNeeded}})
+				}
+				console.log("Quest completed!")
+				doJob()
+			}
+			fn()
+			console.log(`Spoofing video for ${questName}.`)
+		} else if(taskName === "PLAY_ON_DESKTOP") {
+			if(!isApp) {
+				console.log("This no longer works in browser for non-video quests. Use the discord desktop app to complete the", questName, "quest!")
+			} else {
+				api.get({url: `/applications/public?application_ids=${applicationId}`}).then(res => {
+					const appData = res.body[0]
+					const exeName = appData.executables?.find(x => x.os === "win32")?.name?.replace(">","") ?? appData.name.replace(/[\/\\:*?"<>|]/g, "")
+					
+					const fakeGame = {
+						cmdLine: `C:\\Program Files\\${appData.name}\\${exeName}`,
+						exeName,
+						exePath: `c:/program files/${appData.name.toLowerCase()}/${exeName}`,
+						hidden: false,
+						isLauncher: false,
+						id: applicationId,
+						name: appData.name,
+						pid: pid,
+						pidPath: [pid],
+						processName: appData.name,
+						start: Date.now(),
+					}
+					const realGames = RunningGameStore.getRunningGames()
+					const fakeGames = [fakeGame]
+					const realGetRunningGames = RunningGameStore.getRunningGames
+					const realGetGameForPID = RunningGameStore.getGameForPID
+					RunningGameStore.getRunningGames = () => fakeGames
+					RunningGameStore.getGameForPID = (pid) => fakeGames.find(x => x.pid === pid)
+					FluxDispatcher.dispatch({type: "RUNNING_GAMES_CHANGE", removed: realGames, added: [fakeGame], games: fakeGames})
+					
+					let fn = data => {
+						let progress = quest.config.configVersion === 1 ? data.userStatus.streamProgressSeconds : Math.floor(data.userStatus.progress.PLAY_ON_DESKTOP.value)
+						console.log(`Quest progress: ${progress}/${secondsNeeded}`)
+						
+						if(progress >= secondsNeeded) {
+							console.log("Quest completed!")
+							
+							RunningGameStore.getRunningGames = realGetRunningGames
+							RunningGameStore.getGameForPID = realGetGameForPID
+							FluxDispatcher.dispatch({type: "RUNNING_GAMES_CHANGE", removed: [fakeGame], added: [], games: []})
+							FluxDispatcher.unsubscribe("QUESTS_SEND_HEARTBEAT_SUCCESS", fn)
+							
+							doJob()
+						}
+					}
+					FluxDispatcher.subscribe("QUESTS_SEND_HEARTBEAT_SUCCESS", fn)
+					
+					console.log(`Spoofed your game to ${applicationName}. Wait for ${Math.ceil((secondsNeeded - secondsDone) / 60)} more minutes.`)
+				})
+			}
+		} else if(taskName === "STREAM_ON_DESKTOP") {
+			if(!isApp) {
+				console.log("This no longer works in browser for non-video quests. Use the discord desktop app to complete the", questName, "quest!")
+			} else {
+				let realFunc = ApplicationStreamingStore.getStreamerActiveStreamMetadata
+				ApplicationStreamingStore.getStreamerActiveStreamMetadata = () => ({
+					id: applicationId,
+					pid,
+					sourceName: null
+				})
+				
+				let fn = data => {
+					let progress = quest.config.configVersion === 1 ? data.userStatus.streamProgressSeconds : Math.floor(data.userStatus.progress.STREAM_ON_DESKTOP.value)
+					console.log(`Quest progress: ${progress}/${secondsNeeded}`)
+					
+					if(progress >= secondsNeeded) {
+						console.log("Quest completed!")
+						
+						ApplicationStreamingStore.getStreamerActiveStreamMetadata = realFunc
+						FluxDispatcher.unsubscribe("QUESTS_SEND_HEARTBEAT_SUCCESS", fn)
+						
+						doJob()
+					}
+				}
+				FluxDispatcher.subscribe("QUESTS_SEND_HEARTBEAT_SUCCESS", fn)
+				
+				console.log(`Spoofed your stream to ${applicationName}. Stream any window in vc for ${Math.ceil((secondsNeeded - secondsDone) / 60)} more minutes.`)
+				console.log("Remember that you need at least 1 other person to be in the vc!")
+			}
+		} else if(taskName === "PLAY_ACTIVITY") {
+			const channelId = ChannelStore.getSortedPrivateChannels()[0]?.id ?? Object.values(GuildChannelStore.getAllGuilds()).find(x => x != null && x.VOCAL.length > 0).VOCAL[0].channel.id
+			const streamKey = `call:${channelId}:1`
+			
+			let fn = async () => {
+				console.log("Completing quest", questName, "-", quest.config.messages.questName)
+				
+				while(true) {
+					const res = await api.post({url: `/quests/${quest.id}/heartbeat`, body: {stream_key: streamKey, terminal: false}})
+					const progress = res.body.progress.PLAY_ACTIVITY.value
+					console.log(`Quest progress: ${progress}/${secondsNeeded}`)
+					
+					await new Promise(resolve => setTimeout(resolve, 20 * 1000))
+					
+					if(progress >= secondsNeeded) {
+						await api.post({url: `/quests/${quest.id}/heartbeat`, body: {stream_key: streamKey, terminal: true}})
+						break
+					}
+				}
+				
+				console.log("Quest completed!")
+				doJob()
+			}
+			fn()
+		}
+	}
+	doJob()
+}
+```
+
+</details>
+
+# สำหรับใครที่ไม่สามารถเปิด DevTools ได้ให้ทำตามนี้
+1. ปิดดิสคอร์ดก่อนแล้วจากนั้นพิมพ์ กดปุ่ม `Win + R` จากนั้นพิมพ์ `%appdata%/discord` แล้วกด Enter
+2. เลือดหาไฟล์ settings แล้วกดเปิดจากนั้นให้วางโค้ดนี้ลงไปแทนแล้วกดบันทึก
+<details>
+<summary>▶ คลิกเพื่อคัดลอกโค้ด</summary>
+
+```js
+{
+  "IS_MAXIMIZED": true,
+  "IS_MINIMIZED": false,
+  "enableHardwareAcceleration": false,
+  "DANGEROUS_ENABLE_DEVTOOLS_ONLY_ENABLE_IF_YOU_KNOW_WHAT_YOURE_DOING": true,
+  "OPEN_ON_STARTUP": false,
+  "chromiumSwitches": {},
+  "WINDOW_BOUNDS": {
+    "x": -8,
+    "y": -8,
+    "width": 1936,
+    "height": 1059
+  },
+  "BACKGROUND_COLOR": "#2c2d32",
+  "audioSubsystem": "experimental",
+  "offloadAdmControls": true,
+  "enableH264MFElectron": true,
+  "asyncVideoInputDeviceInit": true
+}
+```
+
+</details>
